@@ -1,1 +1,1 @@
-# FDC_Manuscript_MPsyc_2025
+# FDC_Manuscript_MPsy_2025
